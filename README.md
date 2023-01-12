@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Rika00000
+- 👀 I’m interested in Music and instruments
+- 🌱 I’m currently learning how to play a piano
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me (Zoey.fonseca000@gmail)
+- My friends are Aiko-san15 and Aiko-san16
